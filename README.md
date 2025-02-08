@@ -39,4 +39,7 @@ wanna int me
 -i say yes to foods btw HEL ok now what uhh
 *lalalalalaala*
 
+![image](https://github.com/user-attachments/assets/f8c37107-b241-495d-ab5c-e9f625f9f280)
+
+
 ok just ask me some questions i domt know what to write anymore

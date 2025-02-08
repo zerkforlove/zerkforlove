@@ -24,7 +24,8 @@ minecraft nothing else, dw)*
 
 = More about me
 !!!
--Id really love to c+h people, if you see me c+h with yall, pls
+-Id really love to c+h people, if you see me c+h with yall, pls!5d)
+
 say hi (im really shy to talk to cool people)
 
 !!!
@@ -39,7 +40,7 @@ wanna int me
 -i say yes to foods btw HEL ok now what uhh
 *lalalalalaala*
 
-![image](https://github.com/user-attachments/assets/f8c37107-b241-495d-ab5c-e9f625f9f280)
+[Wind Archer Cookie Run](https://github.com/user-attachments/assets/abb06490-fda6-41a7-abb6-9f3fe43a41
 
 
 ok just ask me some questions i domt know what to write anymore

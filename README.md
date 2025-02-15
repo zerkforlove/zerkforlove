@@ -4,7 +4,7 @@
 !!!
 -I like some fandoms, and some underrated ones maybe
 *undertale, roblox, opm, case file 1225, kamisama kiss, minecraft
- crk, genshin, zenless zone zero, yeah.. idk more. 
+ crk, genshin, zenless zone zero, yeah.. idk more. (i forgot but i swear theres more!?)
 
 = Subjects im focused to (one of them are forced)
 !!!
